@@ -1,1 +1,1 @@
-Nigga you thought 😂
+Nigga you wish 😂😭😂
